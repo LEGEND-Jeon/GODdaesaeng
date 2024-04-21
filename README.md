@@ -1,3 +1,6 @@
+
+<img width="558" alt="스크린샷 2024-04-21 오후 8 00 09" src="https://github.com/LEGEND-Jeon/GODdaesaeng/assets/102947178/3950976d-2b82-411f-8981-71e247048604">
+<br>
 <img width="1442" alt="image" src="https://github.com/LEGEND-Jeon/GODdaesaeng/assets/102947178/6015870a-1609-421e-965b-e1e9f0b609ed">
 <br>
 <img width="1441" alt="image" src="https://github.com/LEGEND-Jeon/GODdaesaeng/assets/102947178/03431ea0-2f09-4a20-8364-fec0326a8b07">
